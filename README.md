@@ -1,2 +1,2 @@
 # darkrise.com
-<b>&lt;/&lt; ☘️Darkrise Wiki Indonesia [ 🇮🇩 ]</b>
+<b>&lt;/&gt; ☘️Darkrise Wiki Indonesia [ 🇮🇩 ]</b>
