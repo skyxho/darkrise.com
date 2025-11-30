@@ -7,6 +7,8 @@
 **&ensp;&ensp;bermain serta grinding<br>**
 **&ensp;- Mempercepat progress<br>**
 **&ensp;&ensp;dalam bermain game<br>**
+# &lt;/&gt; Dukungan 🕊️<br>
+**&ensp;➥ &#91;[Saweria](https://saweria.co/skyzho)&#93; &#91;[Sociabuzz](https://sociabuzz.com/skyxho)&#93; <br>**
 ```html
 © -Thx for you ☕
 ```
